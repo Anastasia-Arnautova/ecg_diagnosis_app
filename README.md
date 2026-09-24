@@ -162,4 +162,4 @@ qualified cardiologist before any clinical decision-making.
 
 ---
 
-*Diploma Project — 2024*
+*Diploma Project — 2026*
